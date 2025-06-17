@@ -1,3 +1,10 @@
+🎮 Software Engineer | 💻 MSc Computer Science Student | 🔍 Big Data, Intelligent Systems & Scalable Architectures
+
+Feel free to reach out for any Freelance Projects.
+
+
+# ✨ About Me
+
 # 👋 Hi, I’m Safeer Ahmed
 
 I’m a passionate and experienced **Software Engineer** currently pursuing a **Master’s in Computer Science and Technology** at **Ulster University, UK**.
